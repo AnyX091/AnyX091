@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AnyX091
+- 👋 Hi, I’m @Sstar
 - 👀 I’m interested in MONEY
 - 🌱 I’m currently learning CRYPTO SKILLS
 -  ❥ Hope the world becomes a better place
